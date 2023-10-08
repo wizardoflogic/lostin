@@ -1,1 +1,1 @@
-I honestly do not want to say much about this project, but I still would like to keep this repo under my name to claim co-owenership
+I honestly do not want to say much about this project and do not plan to ever come back to this subject again, but I still would like to keep this repo under my name to claim co-owenership just in case
